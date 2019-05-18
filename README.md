@@ -1,0 +1,1 @@
+# chyba-to-m-j-koniec
